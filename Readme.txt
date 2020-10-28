@@ -1,3 +1,3 @@
 # GIT FROGA PROIEKTUA
 
-Hau Nagore
+Egunon danoi
